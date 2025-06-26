@@ -1,5 +1,9 @@
 <h1>🎬 Straw (2025): The Ultimate Guide to the Upcoming Spy Action Thriller</h1>
 <p><b></b>Straw (2025)</b> is one of the most anticipated Indian films of the year, blending espionage, intense action, and gripping drama. Directed by Gowtam Tinnanuri and starring Vijay Deverakonda, this Telugu-language film promises to be a cinematic spectacle. Scheduled for release on *July 4, 2025*, it has already garnered significant attention.</p>
+### <a href="https://movie4days.com" rel="nofollow">➤ ► CLICK HERE TO WATCH NOW</a></br>
+### <a href="https://movie4days.com" rel="nofollow">➤ ► CLICK HERE TO WATCH NOW</a></br>
+### <a href="https://movie4days.com" rel="nofollow">➤ ► CLICK HERE TO WATCH NOW</a>
+
 <h1>📊 Movie Overview</h1>
 <ul>
   <li>Title:	Straw (2025)</li>
